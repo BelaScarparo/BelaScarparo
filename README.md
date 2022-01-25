@@ -1,4 +1,4 @@
-## Oi! Eu sou a Izabela Scarparo, prazer!😊
+## Oi! Meu nome é Izabela Scarparo, prazer!😊
 
 <div align="center">
   <a href="https://github.com/BelaScarparo">
